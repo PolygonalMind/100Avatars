@@ -40,3 +40,8 @@ https://twitter.com/AlexorNyan
 Thanks to the VRChat team who gave us motivation needed to push this project forward .
 
 Thanks to anyone that used our avatars.
+
+--- ToxSam, CEO of Poylgonal Mind ---  
+
+
+https://www.polygonalmind.com/
