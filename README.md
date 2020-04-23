@@ -52,4 +52,5 @@ CEO of Polygonal Mind
 Join our discord
 
 https://discord.gg/P6Ahh76
+
 https://www.polygonalmind.com/
