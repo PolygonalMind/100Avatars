@@ -41,7 +41,15 @@ Thanks to the VRChat team who gave us motivation needed to push this project for
 
 Thanks to anyone that used our avatars.
 
---- ToxSam, CEO of Poylgonal Mind ---  
+---
+All yours,
+
+Daniel Garcia   A.K.A   ToxSam
+
+CEO of Polygonal Mind  
 
 
+Join our discord
+
+https://discord.gg/P6Ahh76
 https://www.polygonalmind.com/
