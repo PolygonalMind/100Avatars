@@ -22,21 +22,6 @@ https://twitter.com/polygonalmind
 
 Thanks to all the Polygonal Mind team members who invested time on this.
 
-https://twitter.com/toxsam
-
-https://twitter.com/Vontadeh
-
-https://twitter.com/kourtin_
-
-https://twitter.com/victorkunai
-
-https://twitter.com/Lauretta_38
-
-https://twitter.com/05predo
-
-https://twitter.com/AlexorNyan
-
-
 Thanks to the VRChat team who gave us motivation needed to push this project forward .
 
 Thanks to anyone that used our avatars.
