@@ -1,0 +1,6 @@
+-Download Voxedit.
+-Open Voxedit.
+-Go to the "Animator" tab.
+-Go to "Open file".
+-Select VXR file.
+-Enjoy.
